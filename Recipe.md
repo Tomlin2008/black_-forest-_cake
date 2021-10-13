@@ -1,0 +1,11 @@
+Preheat oven to 350 degrees F(175 degrees C). Grease and flour two 9 inch, round, cake pans; cover bottoms with waxed paper.
+In a large bowl, combine flour, 2 cups sugar, cocoa, baking powder, baking soda, and salt. Add eggs, milk, oil, and 1 tablespoon vanilla extract; beat until well blended. Pour batter into prepared pans.
+Bake for 35 minutes. Allow it to cool for 10 minutes. Loosen edges, and remove to racks to cool completely.
+Drain cherries, reserving 1/2 cup juice. Combine reseved juice, cherries, 1 cup sugar and cornstarch in a  2 quart saucepan. Cook over low heat until thickened, stirring constantly. Stir in one teaaspoon vanilla. Cool before using.
+Combine whipping cream and confectioner's  sugar in a chilled medium bowl. Beat with an electric mixer at high speed until stiff peaks form.
+With a long serrated knife, split each cake layer horizontally in half. Tear one split layer into crumbs; set asside. Reserve 1 1/2 cups frosting for decorating cake; set aside. Gently brush loose crumbles off top and side of each cake layer with pastry brush or hands. To assembble, place one cake layer on cake plate. Spread with 1 cup frosting; top with 3/4 cup cherry frosting. Top with second cake layer; repeat layers of frosting an cherry topping. Top with third cake layer. Frost side of cake. Pat reserved crumbs onto frosting on side of cake. Spoon reserved frosting into pastry bag fitted with star decorator tip. Pipe around top and bottom edges of cake. Spoon remaining cherry topping onto top of cake.
+Per serving, 662 calories are provided by this cake.
+This recipe is recomended once  in 45 days and not more often.
+For diabetic patients, it is reccomended that they should not have more than 1 piece per day; they must take an injection of insulin that day.
+Adults may have 1-3 pieces per day.
+Children may have any number of pieces, till 5, based  on his/her health conditions and reccomendation of parents. Eating more than reccomended by  an adult may affect affect your health adversely.
